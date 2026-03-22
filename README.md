@@ -4,6 +4,12 @@ The other file in above has a legal description of Sunset Number 2 B1 L28 and re
 
 Both properties have dozens of liens and releases of liens which are commercial mortgages. The release of lien on the property she purchased in 2025 does not have the proper address or owner and is missing the lien itself, but was still filed against the property and paid by the seller at closing and filed in the abstract and noted as an illegal stray instrument without explanation from the County Clerk to date. The signifance is that it was found to be financed by Sovereign.
 
+LPD masquerades as Tekton Properties, LLC, groundzero LLC or rambler properties and has mortgages from First United and Trust which is Sovereign Bank's parent company. There are multiple multi-million dollar mortgages hidden inside one of the two lots in the parcel of this property. It can be described three ways, so if there is a mortgage on one of the legal descriptions, it has probably been refinanced three or four times using a different description.
+
+The county began to attach assignment of mortgages known as Bankers Trust Co to houses when e-mails were sent questioning the status of affairs. Each and every house that belong to either her or a relative randomly received an assignment back dated to 1995 two weeks ago. The other side of their mineral interest was assigned to another entity randomly the week after without reason or explanation. 
+
+Check the other repository for the next episode of this situation as it relates to her son's properties and his real name identity theft, theft of services, illegal investor mortgages and more. 
+
 
 
 
