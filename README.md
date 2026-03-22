@@ -1,0 +1,1 @@
+This dump contains mortgages, disputes, loan information, e-mails, credit reports, and information about Sovereign Bank of Oklahoma and their deceptive and illegal business practices in residential and commercial mortgaging.
