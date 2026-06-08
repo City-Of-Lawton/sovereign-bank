@@ -1,5 +1,6 @@
 This dump contains mortgages, disputes, loan information, e-mails, credit reports, and information about Sovereign Bank of Oklahoma and their deceptive and illegal business practices in residential and commercial mortgaging. Please start with the affidavit above me. It will help to relate the exhibits in the repository and create a timeline of events.
 
+![alt text](https://github.com/City-Of-Lawton/sovereign-bank/blob/released/www.banksovereign.com.jpeg?raw=true) 
 
 TIMELINE AND SUMMARY OF EVENTS
 
